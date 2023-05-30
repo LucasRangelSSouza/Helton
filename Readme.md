@@ -11,3 +11,4 @@ estou fazendo varias vezes, pois a pratica é que leva à perfeição
 estou subindo mais um arquivo para fixar oos estudos
 mais uma vez estou aqui para subir mais uma correção do meu código
 fiz cagada , por isso estou fazendo tudo novamente
+eu de novo
